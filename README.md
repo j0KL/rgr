@@ -1,2 +1,2 @@
 # rgr
-rgr.l92085u5.beget.tech
+http://rgr.l92085u5.beget.tech/
